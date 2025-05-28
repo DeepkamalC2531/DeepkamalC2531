@@ -1,4 +1,4 @@
--# 👋 Hey there! I'm Deep Kamal Chauhan
+-# 👋 Hey there! I'm DeepkamalC25313
 
 🎓 BCA Student | 💻 Tech Explorer | 🧠 Lifelong Learner  
 📚 Pursuing O-Level | 🔍 Exploring AI, WebDev & Automation
