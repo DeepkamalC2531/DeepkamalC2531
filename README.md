@@ -30,7 +30,13 @@
 [![Portfolio](https://img.shields.io/badge/-Notion%20Portfolio-000000?style=flat&logo=notion&logoColor=white)](https://low-knave-426.notion.site/Deep-Kamal-Chauhan-About-Me-200384f053b48025bf8ac40494276ab0) 👋 Hi, I’m @DeepkamalC2531
 - 👀 I’m interested in programming 
 - 🌱 I’m currently learning BCA O LEVEL 
-- 💞️ I’m looking to collaborate on INSTAGRAM 
+- 💞️ I’m looking to collaborate on 🔗🔗INSTAGRAM:https://www.instagram.com/deep_kamal_chauhan?igsh=aWV2aWYxNTE3Z2kz
+- tweeter:https://x.com/DeepkamalC25313?s=09
+- Notion:https://low-knave-426.notion.site/Deep-Kamal-Chauhan-About-Me-200384f053b48025bf8ac40494276ab0?pvs=4
+- Facebook :https://www.facebook.com/share/15QedmmGKp/
+- thread:https://www.threads.net/@deep_kamal_chauhan
+- gravatar:https://gravatar.com/deepkamalchauhan576
+- contact:7318418997,9651008385
 - 📫 How to reach me AT HOME 
 - 😄 Pronouns: HE
 - ⚡ Fun fact: YOU READ ME
