@@ -21,8 +21,8 @@
 ---
 
 ## 📈 Stats
-![GitHub Stats](https://github-readme-stats.vercel.app/api?username=deepkamalchauhan&show_icons=true&theme=tokyonight)
-![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=deepkamalchauhan&layout=compact&theme=tokyonight)
+![GitHub Stats](https://github-readme-stats.vercel.app/api?username=DeepkamalC25313 &show_icons=true&theme=tokyonight)
+![Top Languages](https://github-readme-stats.vercel.app/api/top-langs/?username=DeepkamalC25313 &layout=compact&theme=tokyonight)
 
 ---
 
